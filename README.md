@@ -1,4 +1,4 @@
-### Hi there 👋A meme token based on HE-MAN, The most powerful man in the universe, defender of the secrets of Castle Grayskull from the evil forces of Skeletor. 100% Pure meme. We are Meme of the Universe! Our community is our utility
+### Hi there 👋 $HE-MAN is a meme token based on HE-MAN, The most powerful man in the universe, defender of the secrets of Castle Grayskull from the evil forces of Skeletor. 100% Pure meme. We are Meme of the Universe! Our community is our utility
 
 We are a meme token built on the Bitrock Blockchain, with a focus on providing 'Crypto Reviews' on YouTube.
 
